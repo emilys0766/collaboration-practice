@@ -2,7 +2,7 @@
 #### 2
 #### 3 Vector.
 #### 4
-#### 5
+#### 5 Kuro.
 #### 6
 #### 7 I don't know what to type here.
 #### 8
